@@ -10,3 +10,4 @@ My Favorite Anime
 
 ![image](https://user-images.githubusercontent.com/122244559/211963885-65c80ac1-a7fd-40d6-9b49-9583ad44a337.png)
 
+![image](https://user-images.githubusercontent.com/122244559/211964066-e5735165-220d-4514-ba07-0b711cc1f2ee.png)

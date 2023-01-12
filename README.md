@@ -7,3 +7,5 @@ My Favorite Anime
 - Seraph of the End
 - Hunter X Hunter
 - Lycoris Recoil
+
+![alt text](image.jpg)

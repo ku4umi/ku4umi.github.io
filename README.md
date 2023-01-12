@@ -8,5 +8,5 @@ My Favorite Anime
 - Hunter X Hunter
 - Lycoris Recoil
 
-![alt text]![image](https://user-images.githubusercontent.com/122244559/211963885-65c80ac1-a7fd-40d6-9b49-9583ad44a337.png)
+![image](https://user-images.githubusercontent.com/122244559/211963885-65c80ac1-a7fd-40d6-9b49-9583ad44a337.png)
 

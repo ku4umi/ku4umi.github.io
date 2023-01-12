@@ -18,7 +18,7 @@ My Favorite Anime
 
 -Angels of Death
 
-![image](https://user-images.githubusercontent.com/122244559/211965004-4c1774da-97f0-46c2-9cf2-ff98786ce25e.png)
+![image](https://user-images.githubusercontent.com/122244559/211965187-93114102-887b-48c9-a0bb-e718be9942ef.png)
 
 -Demon Slayer
 

@@ -38,7 +38,7 @@ Games I play
 
 ![image](https://user-images.githubusercontent.com/122244559/211964746-a0e7d9f0-6653-41ef-8ffd-7eb82dbb1e44.png)
 
-Songs I love
+Songs I love (not complete, these are just my top favorites I have over 430+ songs in my playlist)
 
 <iframe width="560" height="315" src="https://www.youtube.com/embed/uCVDd0wMYXk" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" allowfullscreen></iframe>
 
@@ -57,3 +57,38 @@ Songs I love
 
 
 <iframe width="560" height="315" src="https://www.youtube.com/embed/_i6oAAlVW2E" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" allowfullscreen></iframe>
+
+
+
+<iframe width="560" height="315" src="https://www.youtube.com/embed/QQj1YBlFQm0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" allowfullscreen></iframe>
+
+
+
+<iframe width="560" height="315" src="https://www.youtube.com/embed/-gXIaD9ogKw" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" allowfullscreen></iframe>
+
+
+
+<iframe width="560" height="315" src="https://www.youtube.com/embed/weZKm1kTrpc" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" allowfullscreen></iframe>
+
+
+
+<iframe width="560" height="315" src="https://www.youtube.com/embed/rGWOJl2cvkU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" allowfullscreen></iframe>
+
+
+
+<iframe width="560" height="315" src="https://www.youtube.com/embed/mVK6zmIFT6s" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" allowfullscreen></iframe>
+
+
+
+<iframe width="560" height="315" src="https://www.youtube.com/embed/JWAaDM3g-vA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" allowfullscreen></iframe>
+
+
+
+<iframe width="560" height="315" src="https://www.youtube.com/embed/8LXGltZ_SDA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" allowfullscreen></iframe>
+
+
+
+<iframe width="560" height="315" src="https://www.youtube.com/embed/mY34wb8dZIc" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" allowfullscreen></iframe>
+
+
+and many more top favorites, tinatamad lang po ako na ilagay lahat sorryyyy

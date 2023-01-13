@@ -37,3 +37,7 @@ Games I play
 3. Mobile Legends
 
 ![image](https://user-images.githubusercontent.com/122244559/211964746-a0e7d9f0-6653-41ef-8ffd-7eb82dbb1e44.png)
+
+Songs I love
+
+https://open.spotify.com/track/4wlOGHCurUTa60NQGP2pXV?si=3bec2ee75fed4d04

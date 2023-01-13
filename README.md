@@ -40,4 +40,4 @@ Games I play
 
 Songs I love
 
-https://open.spotify.com/track/4wlOGHCurUTa60NQGP2pXV?si=3bec2ee75fed4d04
+<iframe width="560" height="315" src="https://www.youtube.com/embed/uCVDd0wMYXk" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" allowfullscreen></iframe>

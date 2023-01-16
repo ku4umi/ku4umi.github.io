@@ -139,7 +139,7 @@ Ok,ok enough muna of those, ako naman.
 
 About me <33
 
-Full name: Iesxela Mei Y. Paule
+Full name: Iesxela Mei Y. Paule (ay-se-la)
 
 Nickname: Em (pls wag Mei or Iesxela, ang cringe po :< ) (I mean Mei is fine pero only for some people, it's fine)
 

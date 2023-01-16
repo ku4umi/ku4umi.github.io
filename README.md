@@ -176,3 +176,12 @@ Do I have anymore to say? Idk :D
 
 To be continued or then end? Pagod na po me :'>
 
+
+
+Let's end po with some Genshin memes ^v^
+
+![image](https://user-images.githubusercontent.com/122244559/212589073-df4fbb3f-d610-4d81-af8e-cc863223e12e.png)
+
+
+
+

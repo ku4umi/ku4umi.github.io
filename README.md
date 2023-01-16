@@ -140,21 +140,37 @@ Ok,ok enough muna of those, ako naman.
 About me <33
 
 Full name: Iesxela Mei Y. Paule
+
 Nickname: Em (pls wag Mei or Iesxela, ang cringe po :< ) (I mean Mei is fine pero only for some people, it's fine)
+
 Favorite color/s: Red, Violet, Blue, Black
+
 Favortie animal: Cats ^v^
+
 Hobbies: Idk? Drawing ig. Di ko alam TvT
+
 Birthday: June 5, 2008
+
 Age: 14 (15 this year)
+
 Something unique: Ang "Iesxela" ko po galing sa "Alexsei" ng tatay ko, baliktad lang po <3
+
 Mother: Maidy Y. Soriano
+
 Father: Alexsei V. Paule
+
 Sibling/s: 4 (All from Father's side, wala po ako siblings from Mother's side)
+
 Eldest Brother: Alec Paule (Kuya Alec)
+
 2nd Eldest Brother: Karleil Paule (Kuya Larce)
+
 One and only Elder Sister <3: Aleissande Idryse Paule (Ate Sundae)
+
 One and only Little Brother and the youngest: Isyldriesx G. Paule (Drei)
+
 Pls don't ask for the pronounciation of our names, I'm tired of telling people the correct way of saying it <3
+
 
 Do I have anymore to say? Idk :D
 

@@ -95,7 +95,7 @@ and many more top favorites, tinatamad lang po ako na ilagay lahat sorryyyy
 
 
 
-Like songs in Spotify:
+Liked songs in Spotify:
 
 <iframe style="border-radius:12px" src="https://open.spotify.com/embed/track/5Ts1DYOuouQLgzTaisxWYh?utm_source=generator" width="100%" height="352" frameBorder="0" allowfullscreen="" allow="autoplay; clipboard-write; encrypted-media; fullscreen; picture-in-picture" loading="lazy"></iframe>
 
@@ -119,5 +119,14 @@ Like songs in Spotify:
 
 Random Pinterest things (credits included)
 
-https://i.pinimg.com/564x/54/16/ca/5416cacd3e18a18d73c478557b09dd94.jpg
-Credits: @n9922125
+![image](https://user-images.githubusercontent.com/122244559/212585905-e0ab2137-217b-4760-87d0-317568a40631.png)
+Credits: @rina1022hataya2004momo
+
+
+My main <33
+![image](https://user-images.githubusercontent.com/122244559/212586088-6fe73bb9-082d-4e98-b25d-31b988d556d5.png)
+Credits: yeu 🌷 on Twitter
+
+
+![image](https://user-images.githubusercontent.com/122244559/212586262-fb4d5582-8e2e-4f4a-b36e-4cc445e2341c.png)
+Credits: @genshin_roll

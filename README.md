@@ -3,99 +3,22 @@ Iesxela Mei Paule
 
 LG: *ARROWSMITH*
 
-My Favorite Anime
-- Seraph of the End
-
-![image](https://user-images.githubusercontent.com/122244559/211964812-5eeda694-1877-4491-af0e-e8ead1d6c3e3.png)
-
-- Hunter X Hunter
-
-![image](https://user-images.githubusercontent.com/122244559/211964855-f6425534-cd3c-4265-b145-2284f949f169.png)
-
-- Lycoris Recoil
-
-![image](https://user-images.githubusercontent.com/122244559/211964899-007fc23f-fdac-41af-8fec-b86cf15bdd65.png)
-
--Angels of Death
-
-![image](https://user-images.githubusercontent.com/122244559/211965187-93114102-887b-48c9-a0bb-e718be9942ef.png)
-
--Demon Slayer
-
-![image](https://user-images.githubusercontent.com/122244559/211965076-143f9c84-46cb-4c4d-804b-d14f8314b155.png)
+Wanna know more about me? Just go to the very bottom ^v^♥
 
 
-Games I play
-1. Genshin Impact
+Music/Music boxes that help me focus, relax, calm down, sleep, etc..
 
-![image](https://user-images.githubusercontent.com/122244559/211964531-47bc31a5-470c-4452-b4c1-4a5bd3679241.png)
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fciFZWvGjA8" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" allowfullscreen></iframe>
 
-2. Project sekai: Colorful stage
 
-![image](https://user-images.githubusercontent.com/122244559/211964291-ba2c1b21-138e-4f43-bb0f-3020511f2f0b.png)
+<iframe width="560" height="315" src="https://www.youtube.com/embed/mvxsLNFCVaw" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" allowfullscreen></iframe>
 
-3. Mobile Legends
 
-![image](https://user-images.githubusercontent.com/122244559/211964746-a0e7d9f0-6653-41ef-8ffd-7eb82dbb1e44.png)
-
-Songs I love (not complete, these are just my top favorites I have over 430+ songs in my playlist)
-
-<iframe width="560" height="315" src="https://www.youtube.com/embed/uCVDd0wMYXk" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/OuoCoLvBE50" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" allowfullscreen></iframe>
 
 
 
-<iframe width="560" height="315" src="https://www.youtube.com/embed/VmZ8pKZUVfY" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" allowfullscreen></iframe>
-
-
-
-<iframe width="560" height="315" src="https://www.youtube.com/embed/D9F50YtFejo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" allowfullscreen></iframe>
-
-
-
-<iframe width="560" height="315" src="https://www.youtube.com/embed/RF9fEOz6LNU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" allowfullscreen></iframe>
-
-
-
-<iframe width="560" height="315" src="https://www.youtube.com/embed/_i6oAAlVW2E" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" allowfullscreen></iframe>
-
-
-
-<iframe width="560" height="315" src="https://www.youtube.com/embed/QQj1YBlFQm0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" allowfullscreen></iframe>
-
-
-
-<iframe width="560" height="315" src="https://www.youtube.com/embed/-gXIaD9ogKw" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" allowfullscreen></iframe>
-
-
-
-<iframe width="560" height="315" src="https://www.youtube.com/embed/weZKm1kTrpc" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" allowfullscreen></iframe>
-
-
-
-<iframe width="560" height="315" src="https://www.youtube.com/embed/rGWOJl2cvkU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" allowfullscreen></iframe>
-
-
-
-<iframe width="560" height="315" src="https://www.youtube.com/embed/mVK6zmIFT6s" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" allowfullscreen></iframe>
-
-
-
-<iframe width="560" height="315" src="https://www.youtube.com/embed/JWAaDM3g-vA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" allowfullscreen></iframe>
-
-
-
-<iframe width="560" height="315" src="https://www.youtube.com/embed/8LXGltZ_SDA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" allowfullscreen></iframe>
-
-
-
-<iframe width="560" height="315" src="https://www.youtube.com/embed/mY34wb8dZIc" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" allowfullscreen></iframe>
-
-
-and many more top favorites, tinatamad lang po ako na ilagay lahat sorryyyy
-
-
-
-Liked songs in Spotify:
+Songs I enjoy/love
 
 <iframe style="border-radius:12px" src="https://open.spotify.com/embed/track/5Ts1DYOuouQLgzTaisxWYh?utm_source=generator" width="100%" height="352" frameBorder="0" allowfullscreen="" allow="autoplay; clipboard-write; encrypted-media; fullscreen; picture-in-picture" loading="lazy"></iframe>
 
@@ -109,33 +32,52 @@ Liked songs in Spotify:
 <iframe style="border-radius:12px" src="https://open.spotify.com/embed/track/1ffKh2d1EzZlvuvVj2xpI9?utm_source=generator" width="100%" height="352" frameBorder="0" allowfullscreen="" allow="autoplay; clipboard-write; encrypted-media; fullscreen; picture-in-picture" loading="lazy"></iframe>
 
 
-<iframe style="border-radius:12px" src="https://open.spotify.com/embed/track/2HZLXBOnaSRhXStMLrq9fD?utm_source=generator" width="100%" height="352" frameBorder="0" allowfullscreen="" allow="autoplay; clipboard-write; encrypted-media; fullscreen; picture-in-picture" loading="lazy"></iframe>
-
 
 <iframe style="border-radius:12px" src="https://open.spotify.com/embed/track/62Lv9WcrfzJqhvYDbilJy3?utm_source=generator" width="100%" height="352" frameBorder="0" allowfullscreen="" allow="autoplay; clipboard-write; encrypted-media; fullscreen; picture-in-picture" loading="lazy"></iframe>
 
 
 
-
-Random Pinterest things (credits included)
-
-![image](https://user-images.githubusercontent.com/122244559/212585905-e0ab2137-217b-4760-87d0-317568a40631.png)
-Credits: @rina1022hataya2004momo
-
-
-My main <33
-![image](https://user-images.githubusercontent.com/122244559/212586088-6fe73bb9-082d-4e98-b25d-31b988d556d5.png)
-Credits: yeu 🌷 on Twitter
-
-
-![image](https://user-images.githubusercontent.com/122244559/212586262-fb4d5582-8e2e-4f4a-b36e-4cc445e2341c.png)
-Credits: @genshin_roll
+<iframe style="border-radius:12px" src="https://open.spotify.com/embed/track/5NvOZCjZaGGGL597exlQWv?utm_source=generator" width="100%" height="352" frameBorder="0" allowfullscreen="" allow="autoplay; clipboard-write; encrypted-media; fullscreen; picture-in-picture" loading="lazy"></iframe>
 
 
 
+<iframe style="border-radius:12px" src="https://open.spotify.com/embed/track/7co88DKACpUeOxfQxrkliN?utm_source=generator" width="100%" height="352" frameBorder="0" allowfullscreen="" allow="autoplay; clipboard-write; encrypted-media; fullscreen; picture-in-picture" loading="lazy"></iframe>
 
 
-Ok,ok enough muna of those, ako naman.
+
+<iframe style="border-radius:12px" src="https://open.spotify.com/embed/track/17ZA1gtV3tmeMjyAS5UFNG?utm_source=generator" width="100%" height="352" frameBorder="0" allowfullscreen="" allow="autoplay; clipboard-write; encrypted-media; fullscreen; picture-in-picture" loading="lazy"></iframe>
+
+
+
+<iframe style="border-radius:12px" src="https://open.spotify.com/embed/track/0kn9QwZW8Ow9eTuZgxVEz8?utm_source=generator" width="100%" height="352" frameBorder="0" allowfullscreen="" allow="autoplay; clipboard-write; encrypted-media; fullscreen; picture-in-picture" loading="lazy"></iframe>
+
+
+
+<iframe style="border-radius:12px" src="https://open.spotify.com/embed/track/2r9hCNjupNy2C2g3r6SNz6?utm_source=generator" width="100%" height="352" frameBorder="0" allowfullscreen="" allow="autoplay; clipboard-write; encrypted-media; fullscreen; picture-in-picture" loading="lazy"></iframe>
+
+
+
+<iframe style="border-radius:12px" src="https://open.spotify.com/embed/track/6EgwlXnFrfkFqOKqY3dqki?utm_source=generator" width="100%" height="352" frameBorder="0" allowfullscreen="" allow="autoplay; clipboard-write; encrypted-media; fullscreen; picture-in-picture" loading="lazy"></iframe>
+
+
+
+<iframe style="border-radius:12px" src="https://open.spotify.com/embed/track/2n0U2OG5d6TuW5mKx7YrC0?utm_source=generator" width="100%" height="352" frameBorder="0" allowfullscreen="" allow="autoplay; clipboard-write; encrypted-media; fullscreen; picture-in-picture" loading="lazy"></iframe>
+
+
+
+<iframe style="border-radius:12px" src="https://open.spotify.com/embed/track/5DqdesEfbRyOlSS3Tf6c29?utm_source=generator" width="100%" height="352" frameBorder="0" allowfullscreen="" allow="autoplay; clipboard-write; encrypted-media; fullscreen; picture-in-picture" loading="lazy"></iframe>
+
+
+
+<iframe style="border-radius:12px" src="https://open.spotify.com/embed/track/0GntWN0bKgr1SuaRkacknH?utm_source=generator" width="100%" height="352" frameBorder="0" allowfullscreen="" allow="autoplay; clipboard-write; encrypted-media; fullscreen; picture-in-picture" loading="lazy"></iframe>
+
+
+
+<iframe style="border-radius:12px" src="https://open.spotify.com/embed/track/6KdDQ8lbgQUUhzB8Bc6SxU?utm_source=generator" width="100%" height="352" frameBorder="0" allowfullscreen="" allow="autoplay; clipboard-write; encrypted-media; fullscreen; picture-in-picture" loading="lazy"></iframe>
+
+
+
+
 
 About me <33
 
@@ -149,9 +91,27 @@ Favortie animal: Cats ^v^
 
 Hobbies: Idk? Drawing ig. Di ko alam TvT
 
+Instrument/s I play: Kalimba lang po :D
+
+Instruments I want to play soon: Guitar, Piano, Lyre
+
 Birthday: June 5, 2008
 
 Age: 14 (15 this year)
+
+Best friends/Close friends/People closest to me (from other sections): Kurt (Gonzalez), Abby (Gonzalez), Missy (Lewis), Mia (Brebeuf), Sam (Brebeuf)
+
+Friends I miss the most: Sophie Deliva, Thea Oguan, Red Sanchez, Zyra Postigo, Chariel Palmiano
+
+Senior High - Still Ateneo (Main Campus ofc)
+
+College - I don't know exactly where, but somewhere po sa Manila. My Aunt will be choosing a school for me.
+
+Job I'll be taking - Medical Technician/MedTech (after my Aunt)
+
+Job Place - Florida (I think), America <33
+
+Fandoms I've been into (still in or already out): Baldi's Basics, BATIM, BATDR, Undertale, Cuphead, Genshin Impact, Hello Neighbor, Doki Doki Literature Club, Yandere Simulator, Vocaloid, FNAF, Helluva Boss, Creepypasta, Animes, and I don't remember the others♥
 
 Something unique: Ang "Iesxela" ko po galing sa "Alexsei" ng tatay ko, baliktad lang po <3
 
@@ -169,19 +129,50 @@ One and only Elder Sister <3: Aleissande Idryse Paule (Ate Sundae)
 
 One and only Little Brother and the youngest: Isyldriesx G. Paule (Drei)
 
-Pls don't ask for the pronounciation of our names, I'm tired of telling people the correct way of saying it <3
-
-
-Do I have anymore to say? Idk :D
-
-To be continued or then end? Pagod na po me :'>
+Pls don't ask for the pronounciation of our names, I'm tired of telling people the correct way of saying it T▿T
 
 
 
-Let's end po with some Genshin memes ^v^
 
-![image](https://user-images.githubusercontent.com/122244559/212589073-df4fbb3f-d610-4d81-af8e-cc863223e12e.png)
-
+Genshin pick up lines cuz why not (Some are from the internet and some are made by me with inspiration from other pick up lines)
 
 
+- Yes, I have a vision, a vision of us together
+
+- You’ll be the one for me and Al-bedo one for you
+
+- If love is time, you will be mEI eternity
+
+- Welkin. Wel (I) kin da like you
+
+- Are you grape juice? Cuz you’re my drink of choice
+
+- Two different twins, I chose Lumine, but will you be Lu-mine?
+
+- Yes, I have Beidou, but will you bei-mine?
+
+- Yes, I know I’m supposed to be building my characters, but I want to build our future together
+
+- All this time, I’ve been trying to look for my traveler’s twin, but apparently, I just had to find you
+
+- Are you a cryo user? Because my eyes are frozen on you
+
+- All I want is Eu-la
+
+- Osmanthus wine tastes the same as I remember, yet never shall it be as sweet as you
+
+- I must be Diluckiest girl/guy to have ever met you
+
+- Are you a firework made by Yoimiya? Cuz man, you were made so fine that you mesmerized me with your spark
+
+
+
+
+
+If you have any questions, pls don't be shy to ask me, I'd be more than happy to answer your question♥
+
+
+
+
+![image](https://user-images.githubusercontent.com/122244559/212907078-8337e73e-249a-477d-801c-1c27b4207624.png)
 
